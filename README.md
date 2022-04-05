@@ -1,9 +1,9 @@
 ## Welcome to GitHub Pages
 Owned by Kyle Rayne Bolalin
 
-Hello my fellow friends & students!!
+Hello my fellow friends & students!!I would gladly appreciate y'all for stopping by^^
 
-I would gladly appreciate y'all for stopping by^^
+Kindly take a moment of your time to listen and vibe yourselves for some good musics that would glady make your ears to have fun.
 
 You can use the [editor on GitHub](https://github.com/NecroZrayne/NecroZrayne.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
