@@ -62,7 +62,7 @@ The classics will surely never miss!
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Uw5OLnN7UvM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
-***HIGHLY ENCOURAGED** I think I saw you in this song.
+***I think I saw you in this song. 
 
 ["YOU GOT" by Revi vingda Mim](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
