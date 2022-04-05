@@ -3,19 +3,27 @@ Owned by Kyle Rayne Bolalin
 
 Hello my fellow friends & students!!I would gladly appreciate y'all for stopping by^^
 
-Kindly take a moment of your time to listen and vibe yourselves for some good musics that would glady make your ears to have fun^^
+Kindly take a moment of your time to listen and vibe yourselves for some good musics that would glady make your ears chill for a bit^^
 
-THIS ARE MY TOP 10 MUSICS IN MY PLAYLIST / HOPE Y'ALL ENJOY!
+HERE ARE MY TOP UNDERRATED MUSICS IN MY PLAYLIST / HOPE Y'ALL ENJOY!
 
 "Laugh now cry later" by Drake
 https://www.youtube.com/watch?v=JFm7YDVlqnI
-hgsdcbghsd
 
+"Mind Games" by sidekick
+https://www.youtube.com/watch?v=QjQliDFIsnk
 
+"Get you" by Daniel Caesar
+https://www.youtube.com/watch?v=uQFVqltOXRg
 
+"Say it" by Tory Lanez
+https://www.youtube.com/watch?v=xUq1rZ7mmns
 
+"Before you go" by Lweis Capaldi
+https://www.youtube.com/watch?v=Jtauh8GcxBY
 
-
+"Dandelions"
+https://www.youtube.com/watch?v=WgTMeICssXY
 
 
 ### Markdown
