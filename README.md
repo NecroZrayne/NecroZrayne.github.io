@@ -10,7 +10,7 @@ HERE ARE MY TOP UNDERRATED MUSICS IN MY PLAYLIST / HOPE Y'ALL ENJOY!
 "Laugh now cry later" by Drake
 https://www.youtube.com/watch?v=JFm7YDVlqnI
 
-"Mind Games" by sidekick
+"Mind Games" by Sidekick
 https://www.youtube.com/watch?v=QjQliDFIsnk
 
 "Get you" by Daniel Caesar
@@ -22,7 +22,7 @@ https://www.youtube.com/watch?v=xUq1rZ7mmns
 "Before you go" by Lweis Capaldi
 https://www.youtube.com/watch?v=Jtauh8GcxBY
 
-"Dandelions"
+"Dandelions" by Ruth B
 https://www.youtube.com/watch?v=WgTMeICssXY
 
 
