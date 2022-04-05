@@ -8,22 +8,22 @@ Kindly take a moment of your time to listen and vibe yourselves for some good mu
 HERE ARE MY TOP UNDERRATED MUSICS IN MY PLAYLIST / HOPE Y'ALL ENJOY!
 
 "Laugh now cry later" by Drake
-https://www.youtube.com/watch?v=JFm7YDVlqnI
+[title](https://www.youtube.com/watch?v=JFm7YDVlqnI)
 
 "Mind Games" by Sidekick
-https://www.youtube.com/watch?v=QjQliDFIsnk
+[title](https://www.youtube.com/watch?v=QjQliDFIsnk)
 
 "Get you" by Daniel Caesar
-https://www.youtube.com/watch?v=uQFVqltOXRg
+[title](https://www.youtube.com/watch?v=uQFVqltOXRg)
 
 "Say it" by Tory Lanez
-https://www.youtube.com/watch?v=xUq1rZ7mmns
+[title](https://www.youtube.com/watch?v=xUq1rZ7mmns)
 
 "Before you go" by Lweis Capaldi
-https://www.youtube.com/watch?v=Jtauh8GcxBY
+[title](https://www.youtube.com/watch?v=Jtauh8GcxBY)
 
 "Dandelions" by Ruth B
-https://www.youtube.com/watch?v=WgTMeICssXY
+[title](https://www.youtube.com/watch?v=WgTMeICssXY)
 
 
 ### Markdown
